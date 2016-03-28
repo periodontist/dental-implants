@@ -1,7 +1,10 @@
 Call 604-755-3366 to book an appoinment.
 
+Valley Periodontics
 104 A, 2825 Clearbrook Road
 Abbotsford, BC V2T 6S3
+Phone - 1-604-755-3366
+Fax - 1-888-424-0933
 
 #[Soft Tissue Esthetics Around Dental Implants](http://www.abbotsfordperiodontist.ca/#Soft-Tissue-Esthetics-around-Dental-Implants)
 
