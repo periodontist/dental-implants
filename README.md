@@ -3,7 +3,7 @@ Call 604-755-3366 to book an appoinment.
 104 A, 2825 Clearbrook Road
 Abbotsford, BC V2T 6S3
 
-#Soft Tissue Esthetics Around Dental Implants
+#[Soft Tissue Esthetics Around Dental Implants](http://www.abbotsfordperiodontist.ca/#Soft-Tissue-Esthetics-around-Dental-Implants)
 
 The biggest challenge in implant dentistry is to provide gum tissue in a similar way as our natural teeth. This is because the manner in which our tissue adheres to dental implants is different than as on natural teeth.
 
