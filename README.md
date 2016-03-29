@@ -10,7 +10,7 @@ Phone - 1-604-755-3366
 
 Fax - 1-888-424-0933
 
-#[Soft tissue esthetics around dental implants](http://www.abbotsfordperiodontist.ca/#Soft-Tissue-Esthetics-around-Dental-Implants)
+#Soft tissue esthetics around dental implants
 
 The biggest challenge in implant dentistry is to provide gum tissue in a similar way as our natural teeth. This is because the manner in which our tissue adheres to dental implants is different than as on natural teeth.
 
