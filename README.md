@@ -1,14 +1,12 @@
-Call 604-755-3366 to book an appoinment.
+Call 1-360-602-1594 to book an appoinment.
 
-Valley Periodontics
+located at
 
-104 A, 2825 Clearbrook Road
+104 B, 2825 Clearbrook Road
 
 Abbotsford, BC V2T 6S3
 
-Phone - 1-604-755-3366
 
-Fax - 1-888-424-0933
 
 #Soft tissue esthetics around dental implants
 
