@@ -1,4 +1,4 @@
-Call 1-360-602-1594 to book an appoinment.
+[Abbotsford Periodontist & Dental Implants](http://dentalimplants.abbotsfordperiodontist.ca/)
 
 located at
 
@@ -6,7 +6,7 @@ located at
 
 Abbotsford, BC V2T 6S3
 
-
+Phone: 1-360-602-1594
 
 #Soft tissue esthetics around dental implants
 
